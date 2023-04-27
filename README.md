@@ -3,10 +3,10 @@
 
 ## Modder / RPG lover
 
-##### I like to work on more ambitious projects
+##### - I like to work on more ambitious projects
 
-##### I make mods for some games (even though I've been inactive for a while): Minecraft and Skyrim
+##### - I make mods for some games (even though I've been inactive for a while): Minecraft and Skyrim
 
-##### From time to time I work developing some games
+##### - From time to time I work developing some games
 
-##### In my free time i like to play tabletop RPG
+##### - In my free time i like to play tabletop RPG
