@@ -9,4 +9,4 @@
 
 ##### From time to time I work developing some games
 
-#### In my spare time tabletop RPG game
+#### In my free time i like to play tabletop RPG
